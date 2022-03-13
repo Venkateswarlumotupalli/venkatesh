@@ -1,0 +1,2 @@
+# venkatesh
+in this respositiory we can use this how to sign up to a account for this application is used and it will be used in our daily life.an application program or software package that performs a specific function directly for an end user or,in some cases ,for another application.first you need to open the applicaton and next go to the and the detailsand you can open a account next enter the logincredentials now want u search and browse that application
